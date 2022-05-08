@@ -2,4 +2,4 @@
 - 👀 I’m interested in data analytics
 - 🌱 I’m currently learning data analytics with google on cousera
 - 💞️ I’m looking to collaborate on with like mind members and community on data analytics
-- 📫 How to reach me through my personal email obedakharia@gmail.com
+- 📫 How to reach me through my personal email akhariaobed1@gmail.com
