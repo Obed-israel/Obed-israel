@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Obed-israel
-- 👀 I’m interested in data analytics
-- 🌱 I’m currently learning data analytics with google on cousera
-- 💞️ I’m looking to collaborate on with like mind members and community on data analytics
+- 👀 I’m interested in product design
+- 🌱 I’m currently learning product design(UI/UX)
+- 💞️ I’m looking to collaborate on with like mind members and community on product designer
 - 📫 How to reach me through my personal email akhariaobed1@gmail.com
