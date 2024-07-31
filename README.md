@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Obed-israel
-- 👀 I’m interested in product design
-- 🌱 I’m currently learning product design(UI/UX)
-- 💞️ I’m looking to collaborate on with like mind members and community on product designer
+- 👀 I’m interested in cyber security
+- 🌱 I’m currently learning cyber security
+- 💞️ I’m looking to collaborate on with like mind members and community on cyber security
 - 📫 How to reach me through my personal email akhariaobed1@gmail.com
